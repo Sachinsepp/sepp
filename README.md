@@ -1,1 +1,2 @@
 BGS Polytechnic 
+BGS POLYTECHNIC 
